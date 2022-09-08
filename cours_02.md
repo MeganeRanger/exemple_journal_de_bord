@@ -8,8 +8,9 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 ### Daily tous les jours 
 J'ai beaucoup apprécié aller à daily tous les jours parce que j'ai beaucoup aimé la façon dont il intègre la musique avec divers objets par exemple leurs balançoires qui fait de la musique en se balançant dessus. J'aime se concept parce que j'aime la musique car c'est divertissant et accueillant et j'aime leur technique. 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+
+### Animation 3D
+J'aime l'animation 3D parce que je suis attirée vers l'animation j'aime voir les personnes évoluer et de voir le résultat finale. J'aime écouter des animations 3D et je serai encore plus attiré de faire partie d'une équipe dans le futur.
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  

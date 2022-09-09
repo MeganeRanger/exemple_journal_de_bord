@@ -15,8 +15,8 @@ J'aime l'animation 3D parce que je suis attirée vers l'animation j'aime voir le
 ### La nuit étoilé par Vincent Van Gogh
 J'ai choisi cette œuvre parce qu'elle est très minutieuse et je suis très habile en dessin surtout pour les traits minutieux. Je pense que cela peut m'amener vers le multimédia parce que je suis très patiente et je prend mon temps à faire mes travaux et si nous devons faire des exercices minutieux j'ai assez d'expérience pour abolir cette méthode.  
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### Société des arts technologiques ( SAT )
+J'ai choisis cette compagnie parce que l'année passée j'ai été visée la Société des arts technologiques et nous avons fait plusieurs petites activités que j'ai beaucoup aimé dont créer de la musique et une autre activité qui est du montage vidéo et les deux activités m'on beaucoup intrigué et j'aimerais continuer à faire des expériences de se type dans le futur. Nous avons aussi été dans le dome gigantesque pour voir une simulation virtuelle qui était génial c'était une super belle expérience et j'aimerais créer quelque chose se de genre dans les années à suivre.
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 

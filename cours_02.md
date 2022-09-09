@@ -19,5 +19,5 @@ J'ai choisi cette œuvre parce qu'elle est très minutieuse et je suis très hab
 J'ai choisis cette compagnie parce que l'année passée j'ai été visée la Société des arts technologiques et nous avons fait plusieurs petites activités que j'ai beaucoup aimé dont créer de la musique et une autre activité qui est du montage vidéo et les deux activités m'on beaucoup intrigué et j'aimerais continuer à faire des expériences de se type dans le futur. Nous avons aussi été dans le dome gigantesque pour voir une simulation virtuelle qui était génial c'était une super belle expérience et j'aimerais créer quelque chose se de genre dans les années à suivre.
 
 ### Nintendo
-J'ai choisis Nintendo parce que depuis que je suis très jeune j'ai grandit dans l'univers des jeux vidéos et mon premier jeux que j'ai jouer est Mario kart sur la WII jlai toujours aimé les jeux vidéos et j'aimerais faire un projet de la sorte. J'aimerais aller au delà de mes capacités et de faire partie d'un projet aussi beau.
+J'ai choisis Nintendo parce que depuis que je suis très jeune j'ai grandit dans l'univers des jeux vidéos et mon premier jeux que j'ai jouer est Mario kart sur la WII j'ai toujours aimé les jeux vidéos et j'aimerais faire un projet de la sorte. J'aimerais aller au delà de mes capacités et de faire partie d'un projet aussi beau.
 

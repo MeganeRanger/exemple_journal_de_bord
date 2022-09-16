@@ -5,16 +5,12 @@ Choisissez des emplois qui pourraient vous intéresser.
 ### Emploi 1 - Identification
 Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
 
-### Emploi 2 - Identification
-4 à 5 lignes
+### Emploi 2 - Conception de jeux vidéo
+Les tâches principales pour faire de la conception de jeux vidéos incluent le développement des histoires et des traits des personnages, des intriguent de jeux, des paramètres et des règles du jeu. Les qualités requise pour pratiquer se métier sont d'avoir une passion pour les jeux vidéos et un pré requis indispensable, savoir l'histoire des jeux vidéo, il doit posséder une imagination débordante, il doit sans cesse inventer des histoires, des décors et des personnages ainsi que il doit avoir beaucoup d’idées originales et cohérentes. Se qui m'interre de la conception des jeux vidéo est que je suis libre d'avoir mes propres idée et je peux même créer mon propre jeu vidéo si j'en es envi. Et se qui m'intéresse le moins de se métier est d'avoir constamment de nouvelle idée et parfois nous avons pas toujours des idées.
 
-### Emploi 3 - Identification
-4 à 5 lignes 
+### Emploi 3 - Design intérieure
+Les qualiter requise pour être designer intérieur sont qu'on doit être très créatif et toujours avoir plusieurs idées d'aménagement pour pouvoir élargir le choix du client ensuite nous devons être communicatif envers nos clients pour pouvoir répondre à leur besoin. Les tâches requise pour se métier sont avoir de solides connaissances en histoire de l’habitat, en décoration et en techniques des matériaux, posséder des notions en architecture, posséder des aptitudes en dessin, utiliser et maîtriser des logiciels d’infographie (2D, 3D, DAO, CAO), posséder une bonne mémoire visuelle, pouvoir concilier aspects techniques et esthétiques ainsi que se représenter les espaces, les volumes en trois dimensions. Ils travaillent dans des bureaux architectes, dans les entreprises de rénovation et de construction ainsi que dans l'industrie du meuble. Se qui m'intéresse de se métier est que je peux avoir ma touche personnel dans l'aménagement de mes clients et se qui m'intéresse le moins de se métier est que je doit faire avec l'espace que j'ai pour faire mon aménagement.
 
-### Emploi 4 - Identification
-4 à 5 lignes
-
-### Emploi 5 - Identification
-4 à 5 lignes
-
+### Emploi 4 - Animation 3D
+Les tâches requise pour être en animation 3D est d'avoir acquis et de métriser le 3D, avoir de l'imagination et d'avoir de nouvelles idées. Les qualités requise pour se métier sont d'avoir un sens de l’observation, une grande rigueur, une sensibilité artistique et un esprit vif et réactif. L'animateur 3D peut travailler au sein d’une petite structure ou d’une grande entreprise. Il est aussi possible d’exercer ce métier en tant que free lance. Si ce job vous intéresse, il est indispensable de se former. Se qui m'intéresse de se métier est de pouvoir créer et de réaliser mes projets comme je le souhaite et je fait partie d'une bonne équipe. Se qui m'intéresse le moins de se métier est de faire accepter mes projets ou de recommencer mon idée parce qu'elle pourrait être mieux modifier. 
 

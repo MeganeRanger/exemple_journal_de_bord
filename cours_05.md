@@ -11,4 +11,4 @@ Je devrais améliorer à être moins stresser et améliorer mon vocabulaire.
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? 
-J'ai aimé la majorité des présenations parce qu'il y a certaine présentation qui était très intéressante et bien exécuter et il y en avait qu'il était aussi bon mais ne parlais pas assé fort mais quand même bien exécuter.
+J'ai aimé la majorité des présentations parce qu'il y a certaine présentation qui était très intéressante et bien exécuter et il y en avait qu'il était aussi bon mais ne parlais pas assé fort mais quand même bien exécuter.
